@@ -6,3 +6,9 @@ In constant learning, to complete my challenges I'm starting in the area of Boot
 
 I am goal orienated and analytical in my approach to my career. I believe strongly in team-work and being eagar to learn everyday but am very comfortable to take the lead and work autonomously without supervision when required.
 
+👋 HTML
+👋 CSS3
+👋 JAVASCRIPT
+
+
+
