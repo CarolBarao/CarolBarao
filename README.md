@@ -1,5 +1,4 @@
-![criatividade ](https://user-images.githubusercontent.com/119294176/209669237-4033a952-384b-443c-a0a4-9b474b9e7946.jpg)
-
+![criatividade ](https://user-images.githubusercontent.com/119294176/209669762-a991aa30-4ba5-4c82-9afa-73e356f43979.jpg)
 
 
 
